@@ -1,2 +1,0 @@
-# tres-en-raya
-UwU
